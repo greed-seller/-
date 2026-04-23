@@ -11,7 +11,7 @@ if youre gonna be weird about it simply just dont talk to us at all!!!!! shout o
 
 we cant pick up tones right nor what youre trying to tell us, iwec most of the time
 if you see "sys" in our pony town skins, dont rp with us or anything like that, dont bring up ANYTHING that has happened in said thing 
-we're taken so dont flirt. we can be hostile most of the time and im sorry for that unless you provoke us on purpose !!
+we're taken so dont flirt. **we can be hostile most of the time and im sorry for that** unless you provoke us on purpose !!
 no do not call us sensitive for the dni, if youre on it then just dont interact nor comment on it . whispers on pt are ok!!!!!!! just for the LOVE of god dont be weird
 
 **dni** : forsaken fans , grace fans , pressure fans , the freak circus or whatever fans , people who make jokes about hurting animals or literal. dead animals, irls ( i hope irls get the help they all deserve , we just do not feel comfortable interacting with any of them ) , ppl who bring up sources / treat fictives like theyre the actual character , ai supporters , people who r odd about systems !!!!!!!!! ugh , anti otherkin ( is that the word ) , genuinely if youre odd idk what else to tell you , abuser x victim ppl or that fall into the category of darkship or whatever , people who treat " doubles " like they arent human ( if you genuinely threaten doubles or whatever the term is over something then you should genuinely get help . sorry not sorry ) , over 18 **unless friend** , people who make jokes about hurting kids or shit like that , 
